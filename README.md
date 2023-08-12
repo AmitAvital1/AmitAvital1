@@ -1,5 +1,5 @@
 # 💫 About Me:
-3nd year student of BSc in Computer Science<br>
+3rd year student of BSc in Computer Science<br>
 
 
 ## 🌐 Socials:
